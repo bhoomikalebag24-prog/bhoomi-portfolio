@@ -16,7 +16,7 @@ and my growing passion for **AI and computer vision**.
 
 ## 🖼️ My Portfolio
 📄 **View Full Portfolio PDF:**  
-👉 [BHOOMI_VIJAY_KALEBAG_PORTFOLIO.pdf](BHOOMI_VIJAY_KALEBAG_PORTFOLIO.pdf)
+👉 [BHOOMI VIJAY KALEBAG (2).pdf](BHOOMI%20VIJAY%20KALEBAG%20(2).pdf)
 
 This document includes my:
 - Work experiences and internships  
